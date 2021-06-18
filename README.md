@@ -1,0 +1,2 @@
+# ajimiftah
+Untuk pengetahuan
